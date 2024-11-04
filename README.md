@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on AI-driven projects
 
-📫 You can reach me at shlok.sawant5595@gmail.com
+📫 You can reach me at shloksawant0912@gmail.com
 
 ------------------------------------------------------------------
 
